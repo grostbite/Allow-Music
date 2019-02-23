@@ -3,4 +3,4 @@ Follow the Music! This is a free streaming music service for Windows, xFactureOS
 
 In developing.
 
-![](https://pp.userapi.com/c846122/v846122844/1b015d/G67Yf_LhCu8.jpg)
+![](https://pp.userapi.com/c845324/v845324254/1b3f7b/WFDuEAO4AM8.jpg)
